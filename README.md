@@ -10,7 +10,8 @@ lajivirttä laulamahan.
 Sanat suussani sulavat, 
 puhe'et putoelevat, 
 kielelleni kerkiävät, 
-hampahilleni hajoovat. 
+hampahilleni hajoovat.
+
 Veli kulta, veikkoseni, 
 kaunis kasvinkumppalini! 
 Lähe nyt kanssa laulamahan, 
